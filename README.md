@@ -8,3 +8,4 @@ thank you
 see you
 take care
 hai all how are you
+how was the day
