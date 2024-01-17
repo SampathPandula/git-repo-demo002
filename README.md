@@ -7,3 +7,4 @@ and what is ur name
 thank you
 see you
 take care
+hai all how are you
